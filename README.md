@@ -1,0 +1,1 @@
+# SHORTCUT-M1NER
